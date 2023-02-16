@@ -22,7 +22,7 @@
 Snappy에는 다양한 컨셉과 느낌의 스냅 촬영 전문가가 활동하고 있습니다.
 스냅 사진사분들의 포트폴리오를 보시고 맘에 쏙 드는 사진사분들의 서비스를 받아보세요.
 ```
-
+- Presentation URL : https://www.youtube.com/watch?v=PkcPliZGZ_0
 <br>
 
 # 2. Snappy 팀원 소개 및 역할 분담
